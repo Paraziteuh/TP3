@@ -1,4 +1,4 @@
-Va tremer quando ver
+Je ne crois pas
 Dois magrin' seguindo a Doblô de CG
 Corte quadradin', igual Kauã, procevê
 Esses dias me ligou, falou que amor tem nada a ver
